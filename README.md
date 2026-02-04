@@ -1,0 +1,1 @@
+# W1.8_PA_WhereOrderByStatements_SCOTT.docx.
